@@ -1,4 +1,14 @@
-![Screenshot 2024-12-11 182547](https://github.com/user-attachments/assets/1b004c8b-7999-4de6-87f3-ad51288bf494)
+<p align="center">
+  
+![Untitled drawing (13)](https://github.com/user-attachments/assets/cbcecd5b-d73b-498e-939e-41bd93b5d363)
 
-![crying](https://github.com/user-attachments/assets/5176c18c-2538-40f0-95a6-f35e4918cbc0)
-![ohmyogd](https://github.com/user-attachments/assets/ca9a7825-ef10-483c-99d9-c45554d07670)
+︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
+
+![Untitled_drawing_19_optimized](https://github.com/user-attachments/assets/657fbb38-2b10-4798-805a-07a3ba37b59a)
+
+︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
+
+Fuzi or Fuziyama / She/her/any/idc
+
+Game developer, 3D Modeller & Artist
+</p>
