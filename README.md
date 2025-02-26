@@ -3,7 +3,7 @@
 ![Untitled drawing (13)](https://github.com/user-attachments/assets/cbcecd5b-d73b-498e-939e-41bd93b5d363)
 </p>
 <p align="center">
-︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
+୨୧︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶୨୧
   </p>
   
 <p align="center" width="100%">
@@ -11,11 +11,14 @@
 </p>
 
 <p align="center">
-︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
+୨୧︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶୨୧
   </p>
 <p align="center">
 Fuzi or Fuziyama / She/her/any/idc
   </p>
 <p align="center">
 Game developer, 3D Modeller & Artist
+</p>
+<p align="center">
+did i mention i love my ocs
 </p>
